@@ -24,4 +24,4 @@ Passionate about technology since the age of 11, I am currently studying Systems
 
 ## For more information, please contact me via gmail:
 
-danielavillin@gmai.com
+danielavillin@gmail.com
